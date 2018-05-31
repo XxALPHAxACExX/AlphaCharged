@@ -1,2 +1,2 @@
-Welcomed to ALPHACHARGED
-I am Welcomed! ( ͡° ͜ʖ ͡°)
+A) Welcomed to ALPHACHARGED  
+R) I am Welcomed! ( ͡° ͜ʖ ͡°)
